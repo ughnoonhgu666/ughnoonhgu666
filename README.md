@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ughnoonhgu666
-- 👀 I’m interested in rekindling my coding interests to better the world, and make my much easier as well!
+- 👀 I’m interested in rekindling my coding interests to better the world, and make mine much easier as well!
 - 
 - 🌱 I’m currently learning the absolute kindergarten level stuff
 - 💞️ I’m looking to collaborate on ... anything that will make me succeed in ending, outing, or preferrably both, the fk'r who can even remote operate dual iphonee woth iOS 18.0 beta 3 installed as my machine's OS!
